@@ -5,6 +5,7 @@
 - 📫 How to reach me TG: @Sasha_Masol1337
 - 😄 Pronouns: they/them
 - ⚡ Fun fact: penis
+- 👨‍❤️‍💋‍👨 Pround member of gay fathers family
 
 <!---
 GordeqQ/GordeqQ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
