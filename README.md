@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @GordeqQ
-- 👀 I’m interested in penis
+- 👀 Sorry girls. I suck d@6ks
 - 🌱 I’m currently learning C#
 - 💞️ I’m looking to collaborate on Kontur Courses
 - 📫 How to reach me TG: @Sasha_Masol1337
 - 😄 Pronouns: they/them
-- ⚡ Fun fact: penis
+- ⚡ Fun fact: God loves fags
 - 👨‍❤️‍💋‍👨 Pround member of gay fathers family
 
 <!---
